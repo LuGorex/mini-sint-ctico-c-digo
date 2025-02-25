@@ -1,0 +1,1 @@
+# mini-sint-ctico-c-digo
